@@ -2,4 +2,5 @@
 
 Hi Casuals!
 
-i like to play games in my spare time
+I like to play games in my spare time
+My Favourite game franchise is bioshock and bioshock 1 being my favourite game
