@@ -1,2 +1,5 @@
 # Hello-World
-just another repository
+
+Hi Casuals!
+
+i like to play games in my spare time
